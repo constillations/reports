@@ -1,6 +1,6 @@
 Subject: ASAAS TECH Google Ads - Campaign Update & Landing Pages Required
 
-Assalam o Alaikum,
+Hi Amine,
 
 Please find below the update on your Google Ads account optimization and the new campaign structure.
 
@@ -305,3 +305,4 @@ Ads Manager
 ---
 *Account: ASAAS TECH (806-005-2894)*  
 *Date: January 10, 2026*
+
